@@ -15,7 +15,9 @@ Undoubtedly, it signifies the apex of the period recognized as the "Golden Epoch
 
 ##  The Scream
 *1893 by Edvard Munch*
+
 ![image](https://github.com/taniniii/taniniii.github.io/assets/151594325/54fd17b7-98f0-4ca7-a8c8-971ff0d97673)
+
 "The Scream" by Edvard Munch remains a profound and highly emotive masterpiece that continues to enthrall audiences globally. Through its composition, use of color, and symbolism, the artwork provides insight into the artist's inner turmoil, tapping into the universal human experience of existential angst. Its lasting allure is rooted in its capacity to elicit a visceral response and prompt contemplation on the essence of our existence. As a testament to Munch's artistic brilliance, "The Scream" demonstrates his skill in portraying the intricacies of the human psyche through the medium of painting. SOURCE: https://www.1st-art-gallery.com/article/the-analysis-of-munchs-the-scream/#:~:text=Its%20vivid%20imagery%20and%20haunting,and%20the%20universal%20human%20experience.
 
 ## Souvenir From Havre
