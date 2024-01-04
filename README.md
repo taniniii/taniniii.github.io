@@ -25,7 +25,7 @@ Undoubtedly, it signifies the apex of the period recognized as the "Golden Epoch
 
 ![image](https://github.com/taniniii/taniniii.github.io/assets/151594325/c3e9bd6f-593d-4b3b-9a90-5247e0f8414d)
 
-This café scene in Picasso's hometown of Barcelona is a notable example of his Cubist approach. Using geometric shapes and vivid colors, Picasso captures three women seated at a table, each with closed eyes. The faces are depicted with simple lines and blurred colors, contributing to the quintessential Cubist ambiance. This painting exemplifies "analytic cubism," breaking down objects into basic shapes for a more abstract representation. Picasso's innovative use of bold colors and simple lines in Souvenir de Havre showcases the emotional expression within Cubism while challenging traditional perspectives, demonstrating that novel styles can create meaningful and thought-provoking artworks.
+This café scene in Picasso's hometown of Barcelona is a notable example of his Cubist approach. Using geometric shapes and vivid colors, Picasso captures three women seated at a table, each with closed eyes. The faces are depicted with simple lines and blurred colors, contributing to the quintessential Cubist ambiance. This painting exemplifies "analytic cubism," breaking down objects into basic shapes for a more abstract representation. Picasso's innovative use of bold colors and simple lines in Souvenir de Havre showcases the emotional expression within Cubism while challenging traditional perspectives, demonstrating that novel styles can create meaningful and thought-provoking artworks. SOURCE: 
 
 ## Blue Dancers
 *1897 by Edgar Degas* 
